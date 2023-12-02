@@ -7,4 +7,4 @@ I love supply chain distribution. However, I am currently looking to pivot in my
 # My Hobbies
 One of my favorite things to do is to travel. I have a goal of hitting all 7 continents. I have 2 left to get to and cannot wait to check it off my bucket list.
 
-![headshot](todd_pic.jpeg)
+
